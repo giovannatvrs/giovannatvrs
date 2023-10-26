@@ -6,5 +6,5 @@
 - 📚 Atualmente aprendendo SQL
 - 💻 Java E C++
 - 💬 Gosto e tenho muita vontade de aprender assuntos novos 
-- 😄 Adoro séries e livros
-
+- 😄 Adoro escutar músicas, assistir séries e ler livros
+- ✉️ Pronomes: ela/dela
