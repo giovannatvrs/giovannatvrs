@@ -1,4 +1,4 @@
-### Olá!  👋
+### Olá! Esse é meu perfil 👋
 
 
 - 🎓 Estudante no 4º período de Sistemas de Informação
